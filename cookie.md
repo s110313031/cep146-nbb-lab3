@@ -39,6 +39,8 @@ Oven: 350°F (175°C)
 
 7. Cool on the sheet 5 minutes, then transfer to a rack.
 
+8. Enjoy!
+
 ## Notes
 
 * Chewier: Chill dough 30–60 minutes before baking.
@@ -46,6 +48,8 @@ Oven: 350°F (175°C)
 * Crispier: Bake 1–2 minutes longer.
 
 * Optional add-ins: 1 cup chopped nuts or swap half the chips for chunks.
+
+* Try not to eat too many!
 
 ## References
 * [Bettycrocker](https://www.bettycrocker.com/recipes/homemade-chocolate-chip-cookies/77c14e03-d8b0-4844-846d-f19304f61c57)
